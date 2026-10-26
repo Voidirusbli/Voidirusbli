@@ -14,7 +14,7 @@ About me !                 ❄️ : .
 
 ### ❆ ─── Connect with me ─── ❆
 <a href="ใส่ลิงก์_Atabook_ของคุณตรงนี้"><img src="https://shields.io"/></a>
-<a href="https://discord.com"><img src="https://shields.io"/></a>
+<a href="1503729158365380714"><img src="https://shields.io"/></a>
 
 <br><br>
 
