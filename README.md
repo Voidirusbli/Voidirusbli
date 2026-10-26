@@ -7,5 +7,5 @@ About me !                 ❄️ : .
 }}}$$
 
 ### ❆ ─── Connect with me ─── ❆
-<a href="https://voidirusbli.atabook.org/"
-<a href="1503729158365380714"
+"https://voidirusbli.atabook.org/"
+"https://discordid.netlify.app/?id=1503729158365380714"
