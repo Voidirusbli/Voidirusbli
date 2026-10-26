@@ -21,3 +21,5 @@ his name is Nam. Yayaya!
 
 ### ❆ ─── OUR discord🥺 ─── ❆
 "https://discordid.netlify.app/?id=1503729158365380714" — Me
+"https://discordid.netlify.app/?id=1284063250018992161" — Mon
+"https://discordid.netlify.app/?id=1320713371393327138" — Nam
