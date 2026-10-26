@@ -1,4 +1,4 @@
-## " νσıdıяυsвlı (About me/my bsf) ! "
+## " νσıdıяυsвlı (About US) ! "
 
 · . ⊹ ₊ ─── ❄️ ─── ₊ ⊹ . ·
 
@@ -19,7 +19,10 @@ About my bsf !                 ❄️ : .
 He's 12 y/o! his bday is April 19‼️😁 He's pretty funny, even though he gets teased by his classmates about his skin color because he's the only one with brown skin. Actually, there are a lot of brown-skinned people, but he's the only one who gets teased😡😡 He was ridiculed with names like "African" and "Blackie." oh my gosh, STOP BULLYING!!!😡😡 The teacher already taught us this, but it seems like those who make fun of others didn't listen!! AUUUUghhh!! But he didn't care lolololol!! He's also good at English🥰🥰
 his name is Nam. Yayaya!
 
-### ❆ ─── OUR discord🥺 ─── ❆
+### ❄️ ─── OUR discord🥺 ─── ❄️
 "https://discordid.netlify.app/?id=1503729158365380714" — Me
 "https://discordid.netlify.app/?id=1284063250018992161" — Mon
 "https://discordid.netlify.app/?id=1320713371393327138" — Nam
+***plus*** · ""https://discordid.netlify.app/?id=1048899213632733204" — bank *(Uh, my friend who is one year older than me!)*
+### ❄️ ─── My Roblox User ─── ❄️
+"https://www.roblox.com/users/2753938924/profile"
