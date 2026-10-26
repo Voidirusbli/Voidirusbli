@@ -23,6 +23,7 @@ his name is Nam. Yayaya!
 "https://discordid.netlify.app/?id=1503729158365380714" — Me
 "https://discordid.netlify.app/?id=1284063250018992161" — Mon
 "https://discordid.netlify.app/?id=1320713371393327138" — Nam
+
 ***plus*** · ""https://discordid.netlify.app/?id=1048899213632733204" — bank *(Uh, my friend who is one year older than me!)*
 ### ❄️ ─── My Roblox User ─── ❄️
 "https://www.roblox.com/users/2753938924/profile"
