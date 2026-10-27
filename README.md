@@ -2,7 +2,7 @@
 
 · . ⊹ ₊ ─── ❄️ ─── ₊ ⊹ . ·
 
-▶︎ $${\color{#FFFFFF}{\textsf{
+: $${\color{#FFFFFF}{\textsf{
 About me !                 ❄️ : .
 }}}$$
 
@@ -11,7 +11,7 @@ I'm 13 y/o! my bday is June 14‼️😁 and I'm a shy person and not good at so
 My I'm name is Sai Mai! Or, for short, Mai! Or you can call me Void or Wadi :] My best friend in real life is named Nam. Even though he's one year younger than me, we're still in the same class😁😂 
 I have a cousin, but I call him my younger brother. His name is Mon. He's 11 years old, but he still watches Skibid Toilet...😭 btw his bday is April 3🥰🥰 I love him as my ANNOYING and funny brother😘😘
 
-▶︎ $${\color{#FFFFFF}{\textsf{
+: $${\color{#FFFFFF}{\textsf{
 About my bsf !                 ❄️ : .
 }}}$$
 
