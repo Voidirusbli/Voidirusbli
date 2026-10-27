@@ -55,6 +55,8 @@ My sons, trust trust🥰 Ahem, They're siblings!😁😁 My main oc is Swedish L
 
 <details>
   <summary>### ❄️ ─── Instagram ─── ❄️</summary>
-    "https://www.instagram.com/b4nxk_?srtk=MTNydGZxN3J6cTZ4bw==" — Bank/Choso
-"https://www.instagram.com/aikozz_nyx?mdxt=YXhnbGh4NG8zcDVn" — Jam/aiko
+
+"https://www.instagram.com/sayhimklxmkeliyng" — Me
+"https://www.instagram.com/b4nxk_" — Bank/Choso
+"https://www.instagram.com/aikozz_nyx" — Jam/aiko
 </details>    
