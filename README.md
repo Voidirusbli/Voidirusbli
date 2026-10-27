@@ -35,7 +35,7 @@
 <details>
   <summary>$${\color{#FFFFFF}{\textsf{Uhmmm?? about the yumeship??? I guess😂😂               ❄️ : .}}}$$</summary>
 
-  “ ꒰ I'm England yumeshippers! Some people know, some don't😑 and I don't ship my minor oc with him ꒱
+  “ ꒰ I'm **England yumeshippers**! Some people know, some don't😑 and I don't ship my minor oc with him ꒱
 
   “ ꒰ **My OC ship(s?)** → ꒱ ❄️ : .  “ ꒰ Iceedish, yup😂😂 Swedish Lapland x Iceland 😂😂 I know Iceland is 16-17 years old, but it's not exactly darkship😑 You can ask Google, I've already asked. At first, I was scared, wondering if it might be darkship😰😰, but once I knew, I wasn't wonder anymore😀 ꒱
 </details>
