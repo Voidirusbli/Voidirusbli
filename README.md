@@ -124,4 +124,8 @@
 
  <img src="https://cdn.phototourl.com/member/2026-10-27-97577453-ebba-4360-9c6b-4fd70dbad54b.jpg" width="250" alt="Main Pony 1"><img src="https://cdn.phototourl.com/member/2026-10-27-fc9db7ab-cfaf-46cb-9468-8d68a743d509.jpg" width="250" alt="Main Pony 2">
 
-  “ ꒰ I always in FSK/DW area, You can find me in that area. If you don't find me, I might be offline or in another area. For example, in AHA  area, Countryballs area or Hetalia area!😁😁 you can c+h me for free! if I'm alone☹️☹️ my discord friends didn't online sometimes, but— Anyway!😀 Whisper to interact: You can send me a friend request or anything, but I'm not good at English, so I might reply slowly because I spend time translating the words to understand them☹️☹️ I don't like roleplaying, but if you ask, I can. I feel a little uncomfortable, but I'll try my best to roleplay well🙂🙂‼️‼️ ꒱
+  “ ꒰ I always in FSK/DW area, You can find me in that area. If you don't find me, I might be offline or in another area. For example, in AHA  area, Countryballs area or Hetalia area!😁😁 ꒱
+
+  “ ꒰ you can c+h me for free! if I'm alone☹️☹️ my discord friends didn't online sometimes, but— Anyway!😀 w2i! You can send me a friend request or anything, but I'm not good at English, so I might reply slowly because I spend time translating the words to understand them☹️☹️ I don't like roleplaying, but if you ask, I can. I feel a little uncomfortable, but I'll try my best to roleplay well🙂🙂‼️‼️ ꒱
+
+  “ ꒰ Darkshippers Dni, Racists Dni, Dnc, Dncover, Dniuf *For some people I don't know, except if they send me a friend request Or I knew them without them asking to be my friend*, mostly AFK, Slowly Reply, Haters Dni, ꒱
