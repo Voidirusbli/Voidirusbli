@@ -41,8 +41,8 @@ My sons, trust trust🥰 Ahem, They're siblings!😁😁 My main oc is Swedish L
 "https://discordid.netlify.app/?id=1048899213632733204" — Bank/Choso
 "https://discordid.netlify.app/?id=1417098371617001474" — Jam/aiko
 "https://discordid.netlify.app/?id=1310275684194582662" — Tod *(My Older cousins)*
-"https://discordid.netlify.app/?id=1323348326971867146” — Ice *(Mon’s friend. he’s older than Mon 3 years lol)*
-"https://discordid.netlify.app/?id=1496839182750978150” — Ice *(alt)*
+"https://discordid.netlify.app/?id=1323348326971867146" — Ice *(Mon’s friend. he’s older than Mon 3 years lol)*
+"https://discordid.netlify.app/?id=1496839182750978150" — Ice *(alt)*
 *(Bank, Tod, Jam and Ice are Friends! They’re same class*
 </details>
 
@@ -55,8 +55,8 @@ My sons, trust trust🥰 Ahem, They're siblings!😁😁 My main oc is Swedish L
 "https://www.roblox.com/users/10122924421/profile" — Nam
 "https://www.roblox.com/users/6037404692/profile" — Mon
 "https://www.roblox.com/users/3677511394/profile" — Bank/Choso
-“https://www.roblox.com/th/users/2517303687/profile“ — Tod
-“https://www.roblox.com/th/users/4884429058/profile” — Ice
+"https://www.roblox.com//users/2517303687/profile" — Tod
+"https://www.roblox.com//users/4884429058/profile" — Ice
 </details>    
 
 ❄️.
