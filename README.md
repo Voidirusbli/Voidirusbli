@@ -2,7 +2,8 @@
 
 · . ⊹ ₊ ─── ❄️ ─── ₊ ⊹ . ·
 
-: $${\color{#FFFFFF}{\textsf{
+<details>
+  <summary>$${\color{#FFFFFF}{\textsf{
 About me !                 ❄️ : .
 }}}$$
 
