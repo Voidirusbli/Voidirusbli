@@ -37,7 +37,7 @@
 
   “ ꒰ I'm **England yumeshippers**! Some people know, some don't😑 and I don't ship my minor oc with him ꒱
 
-  “ ꒰ **My OC ship(s?)** → ꒱ ❄️ : .  “ ꒰ Iceedish, yup😂😂 Swedish Lapland x Iceland 😂😂 I know Iceland is 16-17 years old, but it's not exactly darkship😑 You can ask Google, I've already asked. At first, I was scared, wondering if it might be darkship😰😰, but once I knew, I wasn't wonder anymore😀 ꒱
+  “ ꒰ **My OC ship(s?)** → ꒱ ❄️ : .  “ ꒰ **Iceedish**, yup😂😂 Swedish Lapland x Iceland 😂😂 I know Iceland is 16-17 years old, but it's not exactly darkship😑 You can ask Google, I've already asked. At first, I was scared, wondering if it might be darkship😰😰, but once I knew, I wasn't wonder anymore😀 ꒱
 </details>
 
 ❄️.
@@ -128,4 +128,4 @@
 
   “ ꒰ you can c+h me for free! if I'm alone☹️☹️ my discord friends didn't online sometimes, but— Anyway!😀 w2i! You can send me a friend request or anything, but I'm not good at English, so I might reply slowly because I spend time translating the words to understand them☹️☹️ I don't like roleplaying, but if you ask, I can. I feel a little uncomfortable, but I'll try my best to roleplay well🙂🙂‼️‼️ ꒱
 
-  “ ꒰ Darkshippers Dni, Racists Dni, Dnc, Dncover, Dniuf *For some people I don't know, except if they send me a friend request Or I knew them without them asking to be my friend*, mostly AFK, Slowly Reply, Haters Dni, ꒱
+  “ ꒰ Darkshippers Dni, Racists Dni, Dnc, Dncover, Dniuf *(For some people I don't know, except if they send me a friend request Or I knew them without them asking to be my friend)*, mostly AFK, Slowly Reply, Haters Dni, ꒱
