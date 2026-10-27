@@ -9,6 +9,17 @@
 </details>
 
 · . ⊹ ₊ ─── ❄️ ─── ₊ ⊹ . ·
+<details>
+  <summary>$${\color{#FFFFFF}{\textsf{❄️ My Hetalia ocs 🥺}}}$$</summary>
+  
+  <br>
+
+  | **Swedish Lapland** And **Finnish Lapland** |
+  | :---: | :---: |
+  | <img src="https://cdn.phototourl.com/member/2026-10-27-5385d59c-4839-43db-a322-053175bdd51e.png" width="250" alt="Swedish Lapland"> | <img src="https://cdn.phototourl.com/member/2026-10-27-25f5ef6d-b5ff-40d1-b91f-d392ebee8dc5.png" width="250" alt="Finnish Lapland"> |
+My sons, trust trust😘😘
+</details>
+
 
 <details>
   <summary>$${\color{#FFFFFF}{\textsf{About my bsf !                 ❄️ : .}}}$$</summary>
