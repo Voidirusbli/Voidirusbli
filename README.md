@@ -44,7 +44,7 @@ My sons, trust trust🥰 Ahem, They're siblings!😁😁 My main oc is Swedish L
 ❄️.
 
 <details>
-  <summary>### ❄️ ─── Roblox User ─── ❄️</summary>
+  <summary>### ❄️ ─── Our Roblox User ─── ❄️</summary>
     "https://www.roblox.com/users/2753938924/profile" — Me
 "https://www.roblox.com/users/10122924421/profile" — Nam
 "https://www.roblox.com/users/6037404692/profile" — Mon
@@ -54,9 +54,20 @@ My sons, trust trust🥰 Ahem, They're siblings!😁😁 My main oc is Swedish L
 ❄️.
 
 <details>
-  <summary>### ❄️ ─── Instagram ─── ❄️</summary>
+  <summary>### ❄️ ─── Our Instagram ─── ❄️</summary>
 
 "https://www.instagram.com/sayhimklxmkeliyng" — Me
 "https://www.instagram.com/b4nxk_?obrf=MTNydGZxN3J6cTZ4bw==" — Bank/Choso
 "https://www.instagram.com/aikozz_nyx" — Jam/aiko
+</details>    
+
+❄️.
+
+<details>
+  <summary>### ❄️ ─── Our TikTok ─── ❄️</summary>
+
+"https://www.tiktok.com/@voidirusbli?_r=1&_t=ZS-9AtgcTO9UMm” — Me
+“https://www.tiktok.com/@rayong_ball?_r=1&_t=ZS-9AtgeOywTFF” — Nam
+“https://www.tiktok.com/@fpupy_777?_r=1&_t=ZS-9Atgg3O9hP3” — Bank/Choso
+“https://www.tiktok.com/@__aikozz__nyx.__?_r=1&_t=ZS-9AtgkGR7rgS” — Jam/aiko
 </details>    
