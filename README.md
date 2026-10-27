@@ -119,7 +119,7 @@
 <details>
   <summary>$${\color{#FFFFFF}{\textsf{About Me, in Pony Town!❄️ : .}}}$$</summary>
 
-  “ ꒰ Main Pony ↓ ꒱
+  “ ꒰ Main Ponies ↓ ꒱
 <br>
 
  <img src="https://cdn.phototourl.com/member/2026-10-27-97577453-ebba-4360-9c6b-4fd70dbad54b.jpg" width="250" alt="Main Pony 1"><img src="https://cdn.phototourl.com/member/2026-10-27-fc9db7ab-cfaf-46cb-9468-8d68a743d509.jpg" width="250" alt="Main Pony 2">
