@@ -87,10 +87,9 @@ Thank YOu @pt-fashion 😁😁
 
 ❄️.
 <details>
-  <summary>$${\color{#FFFFFF}{\textsf{About Me, in Pony Town!❄️:.}}}$$</summary>
+  <summary>$${\color{#FFFFFF}{\textsf{About Me, in Pony Town!❄️ : .}}}$$</summary>
 
 Main Pony ↓
-
 <br>
 
  <img src="https://cdn.phototourl.com/member/2026-10-27-97577453-ebba-4360-9c6b-4fd70dbad54b.jpg" width="250" alt="Main Pony">
