@@ -5,7 +5,9 @@
 <details>
   <summary>$${\color{#FFFFFF}{\textsf{About me !                 ❄️ : .}}}$$</summary>
   
-  “ I'm Aroace and transgender boy🏳️‍⚧️! so am I STILL a girl?🤔 btw You can use the pronouns "she/he" to me! I don't mind! I'm 13 y/o! my bday is June 14‼️😁 and I'm a shy person and not good at socializing😢😢 My name is Sai Mai! Or, for short, Mai! Or you can call me Void or Wadi :] My best friend in real life is named Nam. Even though he's one year younger than me, we're still in the same class😁😂 I have a cousin, but I call him my younger brother. His name is Mon. He's 11 years old, but he still watches Skibid Toilet...😭 btw his bday is April 3🥰🥰 I love him as my ANNOYING and funny brother😘😘
+  “ ꒰ I'm Aroace and transgender boy🏳️‍⚧️! so am I STILL a girl?🤔 btw You can use the pronouns "she/he" to me! I don't mind! I'm 13 y/o! my bday is June 14‼️😁 and I'm a shy person and not good at socializing😢😢 My name is SaiMai! Or, for short, Mai! Or you can call me Void or Wadi😇😇 ꒱
+
+  “ ꒰ My best friend in real life is named Nam. Even though he's one year younger than me, we're still in the same class😁😂 I have a cousin, but I call him as my younger brother. His name is Mon. He's 11 years old, but he still watches Skibid Toilet😭 but I love him as my ANNOYING and funny brother😘😘 ꒱
 </details>
 
 ❄️.
@@ -17,7 +19,7 @@
   | **Swedish Lapland**🇸🇪 & 🇫🇮 **Finnish Lapland** |
  <img src="https://cdn.phototourl.com/member/2026-10-27-5385d59c-4839-43db-a322-053175bdd51e.png" width="250" alt="Swedish Lapland"><img src="https://cdn.phototourl.com/member/2026-10-27-25f5ef6d-b5ff-40d1-b91f-d392ebee8dc5.png" width="250" alt="Finnish Lapland">
 
-My sons, trust trust🥰 Ahem, They're siblings!😁😁 My main oc is Swedish Lapland!!😘 Tsundere oc🥰🥰
+My sons, trust trust🥰 Ahem, They're siblings!😁😁 My main oc is Swedish Lapland!!😘 because... He's tsundere🥰🥰
 </details>
 
 ❄️.
