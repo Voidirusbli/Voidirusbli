@@ -44,7 +44,7 @@ My sons, trust trust🥰 Ahem, They're siblings!😁😁 My main oc is Swedish L
 ❄️.
 
 <details>
-  <summary>### ❄️ ─── Our Roblox User ─── ❄️</summary>
+  <summary> ❄️ ─── Our Roblox User ─── ❄️</summary>
     "https://www.roblox.com/users/2753938924/profile" — Me
 "https://www.roblox.com/users/10122924421/profile" — Nam
 "https://www.roblox.com/users/6037404692/profile" — Mon
@@ -54,7 +54,7 @@ My sons, trust trust🥰 Ahem, They're siblings!😁😁 My main oc is Swedish L
 ❄️.
 
 <details>
-  <summary>### ❄️ ─── Our Instagram ─── ❄️</summary>
+  <summary>❄️ ─── Our Instagram ─── ❄️</summary>
 
 "https://www.instagram.com/sayhimklxmkeliyng" — Me
 "https://www.instagram.com/b4nxk_?obrf=MTNydGZxN3J6cTZ4bw==" — Bank/Choso
@@ -64,7 +64,7 @@ My sons, trust trust🥰 Ahem, They're siblings!😁😁 My main oc is Swedish L
 ❄️.
 
 <details>
-  <summary>### ❄️ ─── Our TikTok ─── ❄️</summary>
+  <summary>❄️ ─── Our TikTok ─── ❄️</summary>
 
 "https://www.tiktok.com/@voidirusbli?_r=1&_t=ZS-9AtgcTO9UMm” — Me
 “https://www.tiktok.com/@rayong_ball?_r=1&_t=ZS-9AtgeOywTFF” — Nam
@@ -83,3 +83,12 @@ My sons, trust trust🥰 Ahem, They're siblings!😁😁 My main oc is Swedish L
  <img src="https://cdn.phototourl.com/member/2026-10-27-ff39141e-746f-4e8a-8990-b5358407681c.jpg" width="250" alt="Coolest Pony">
 
 Thank YOu @pt-fashion 😁😁
+</details>
+
+❄️.
+<details>
+  <summary>$${\color{#FFFFFF}{\textsf{About Me, in Pony Town!❄️:.}}}$$</summary>
+
+Main Pony ↓
+  
+ 
