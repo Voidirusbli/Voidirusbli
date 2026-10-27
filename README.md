@@ -38,11 +38,12 @@ My sons, trust trust🥰 Ahem, They're siblings!😁😁 My main oc is Swedish L
 "https://discordid.netlify.app/?id=1503729158365380714" — Me
 "https://discordid.netlify.app/?id=1284063250018992161" — Mon *(My younger cousins)*
 "https://discordid.netlify.app/?id=1320713371393327138" — Nam
-"https://discordid.netlify.app/?id=1048899213632733204" — Bank/Choso *(Uh, my friends who is one year older than me)*
+"https://discordid.netlify.app/?id=1048899213632733204" — Bank/Choso
 "https://discordid.netlify.app/?id=1417098371617001474" — Jam/aiko
 "https://discordid.netlify.app/?id=1310275684194582662" — Tod *(My Older cousins)*
 "https://discordid.netlify.app/?id=1323348326971867146” — Ice *(Mon’s friend. he’s older than Mon 3 years lol)*
 "https://discordid.netlify.app/?id=1496839182750978150” — Ice *(alt)*
+*(Bank, Tod, Jam and Ice are Friends! They’re same class*
 </details>
 
 ❄️.
