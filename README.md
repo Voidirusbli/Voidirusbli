@@ -33,7 +33,7 @@ My sons, trust trust🥰 Ahem, They're siblings!😁😁 My main oc is Swedish L
 · . ⊹ ₊ ─── ❄️ ─── ₊ ⊹ . ·
 
 <details>
-  <summary>### ❄️ ─── OUR discord🥺 ─── ❄️</summary>
+  <summary>$${\color{#FFFFFF}{\textsf{❄️ ─── OUR discord🥺 ─── ❄️}}}$$</summary>
 
 "https://discordid.netlify.app/?id=1503729158365380714" — Me
 "https://discordid.netlify.app/?id=1284063250018992161" — Mon *(My younger cousins)*
@@ -49,7 +49,7 @@ My sons, trust trust🥰 Ahem, They're siblings!😁😁 My main oc is Swedish L
 ❄️.
 
 <details>
-  <summary> ❄️ ─── Our Roblox User ─── ❄️</summary>
+  <summary>$${\color{#FFFFFF}{\textsf{❄️ ─── Our Roblox User ─── ❄️}}}$$</summary>
 
 "https://www.roblox.com/users/2753938924/profile" — Me
 "https://www.roblox.com/users/10122924421/profile" — Nam
@@ -62,7 +62,7 @@ My sons, trust trust🥰 Ahem, They're siblings!😁😁 My main oc is Swedish L
 ❄️.
 
 <details>
-  <summary>❄️ ─── Our Instagram ─── ❄️</summary>
+  <summary>$${\color{#FFFFFF}{\textsf{❄️ ─── Our Instagram ─── ❄️}}}$$</summary>
 
 "https://www.instagram.com/sayhimklxmkeliyng" — Me
 "https://www.instagram.com/b4nxk_?obrf=MTNydGZxN3J6cTZ4bw==" — Bank/Choso
@@ -72,7 +72,7 @@ My sons, trust trust🥰 Ahem, They're siblings!😁😁 My main oc is Swedish L
 ❄️.
 
 <details>
-  <summary>❄️ ─── Our TikTok ─── ❄️</summary>
+  <summary>$${\color{#FFFFFF}{\textsf{❄️ ─── Our TikTok ─── ❄️}}}$$</summary>
 
 "https://www.tiktok.com/@voidirusbli?_r=1&_t=ZS-9AtgcTO9UMm” — Me
 “https://www.tiktok.com/@rayong_ball?_r=1&_t=ZS-9AtgeOywTFF” — Nam
