@@ -10,7 +10,7 @@
 
 <br>
 
-  <img src="https://pinimg.com" width="350" alt="Snow kitty">
+  <img src="https://pinimg.com" width="350">
 
 <details>
   <summary>$${\color{#FFFFFF}{\textsf{About my bsf !                 ❄️ : .}}}$$</summary>
