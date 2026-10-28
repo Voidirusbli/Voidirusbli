@@ -45,7 +45,7 @@
 
   “ ꒰ He's Aroace, He's 12 y/o! his bday is April 19‼️😁 He's pretty funny, He's also good at English🥰🥰 his name is Nam. Yayaya! He made me like Hetalia and I often join the fandom😇 ꒱
 
-  “ ꒰ He's also in the South Park fandom, But I don't plan on joining that fandom, even though I've seen it around. I like Kenny though😁 I liked him just by seeing him🙂 I don't know his personality😑😑 ꒱
+  “ ꒰ He's also in the South Park fandom, but I don't plan on joining that fandom, even though I've seen it around. I like Kenny though😁 I liked him just by seeing him🙂 I don't know his personality😑😑 ꒱
 </details>
 
 ## " Our social media!! 😘 "
@@ -61,10 +61,10 @@
 "https://discordid.netlify.app/?id=1048899213632733204" — Bank/Choso
 "https://discordid.netlify.app/?id=1417098371617001474" — Jam/aiko
 "https://discordid.netlify.app/?id=1310275684194582662" — Tod *(My Older cousins)*
-"https://discordid.netlify.app/?id=1323348326971867146" — Ice *(Mon’s friend. he’s older than Mon 3 years lol)*
+"https://discordid.netlify.app/?id=1323348326971867146" — Ice *(Mon’s friend. he’s 3 years older than Mon, lol)*
 "https://discordid.netlify.app/?id=1496839182750978150" — Ice *(alt)* ꒱
 
-  “ ꒰ *(Bank, Tod, Jam and Ice are Friends! They’re same class* ꒱
+  “ ꒰ *(Bank, Tod, Jam and Ice are Friends! They’re in the same grade* ꒱
 </details>
 
 ❄️.
