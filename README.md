@@ -7,7 +7,7 @@
   
   “ ꒰ I'm Aroace and transgender boy🏳️‍⚧️! so am I STILL a girl?🤔 btw You can use the pronouns "she/he" to me! I don't mind! I'm 13 y/o! my bday is June 14‼️😁 and I'm a shy person and not good at socializing😢😢 My name is SaiMai! Or, for short, Mai! Or you can call me Void or Wadi😇😇 ꒱
 
-  “ ꒰ My best friend in real life is named Nam. Even though he's one year younger than me, we're still in the same class😁😂 I have a cousin, but I call him as my younger brother. His name is Mon. He's 11 years old, but he still watches Skibid Toilet😭 but I love him as my ANNOYING and funny brother😘😘 ꒱
+  “ ꒰ My best friend in real life is named Nam. Even though he's one year younger than me, we're still in the same grade😁😂 I have a cousin, but I call him as my younger brother. His name is Mon. He's 11 years old, but he still watches Skibidi Toilet😭 but I love him as my ANNOYING and funny brother😘😘 ꒱
 </details>
 
 ❄️.
