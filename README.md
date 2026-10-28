@@ -31,7 +31,7 @@
 </details>
 
 <details>
-  <summary>$${\color{#FFFFFF}{\textsf{Uhmmm?? about the yumeship??? I guess😂😂               ❄️ : .}}}$$</summary>
+  <summary>$${\color{#FFFFFF}{\textsf{❄️ About the yumeship??? I guess😂😂 }}}$$</summary>
 
   “ ꒰ I'm **England yumeshippers**! Some people know, some don't😑 and I don't ship my minor oc with him ꒱
 
