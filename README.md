@@ -159,7 +159,6 @@
 </detalis>
 
 ❄️. 
-
 <details>
   <summary>$${\color{#FFFFFF}{\textsf{ My ships list ❄️ : . }}}$$</summary>
 
@@ -180,7 +179,6 @@
 </details>
 
 ❄️. 
-
 <details>
   <summary>$${\color{#FFFFFF}{\textsf{ My dislikes ships list ❄️ : . }}}$$</summary>
 
