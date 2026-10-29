@@ -105,7 +105,7 @@
 · . ⊹ ₊ ─── ❄️ ─── ₊ ⊹ . ·
 
 <details>
-  <summary>$${\color{#FFFFFF}{\textsf{❄️ BY Pony Town Fashion 🥺}}}$$</summary>
+  <summary>$${\color{#FFFFFF}{\textsf{❄️ BY Pony Town 🥺}}}$$</summary>
   <br>
 
  <img src="https://cdn.phototourl.com/member/2026-10-27-ff39141e-746f-4e8a-8990-b5358407681c.jpg" width="250" alt="Coolest Pony">
