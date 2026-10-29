@@ -12,7 +12,7 @@
 
 ❄️.
 <details>
-  <summary>$${\color{#FFFFFF}{\textsf{❄️ . My Hetalia ocs 🥺}}}$$</summary>
+  <summary>$${\color{#FFFFFF}{\textsf{My Hetalia ocs ❄️ : . }}}$$</summary>
   
   <br>
 
@@ -23,7 +23,7 @@
 </details>
 
 <details>
-  <summary>$${\color{#FFFFFF}{\textsf{❄️ . About My Hetalia ocs 😇}}}$$</summary>
+  <summary>$${\color{#FFFFFF}{\textsf{About My Hetalia ocs ❄️ : . }}}$$</summary>
 
   “ ꒰ **Finnish Lapland** → ꒱ ❄️ : . “ ꒰ Cheerful, whiny. *(Boku)*. He is 17 years old and 166 cm tall. He and Finland are sworn brothers *(I'm afraid some people might misunderstand and think they are real siblings, Actually, they aren't.)* Is it strange that he's afraid of Sweden???🤔🤔 Never mind, and anyway😁😁 He knows Sealand too!! so... That's it! He has an exceptionally good relationship with Swedish Lapland *(his older brother)*, even though he feels his brother doesn't seem to care about him😢😢 ꒱
 
@@ -31,7 +31,7 @@
 </details>
 
 <details>
-  <summary>$${\color{#FFFFFF}{\textsf{❄️ . About the yumeship??? I guess😂😂 }}}$$</summary>
+  <summary>$${\color{#FFFFFF}{\textsf{About the yumeship??? ❄️ : . }}}$$</summary>
 
   “ ꒰ I'm **England yumeshippers**! Some people know, some don't😑 and I don't ship my minor oc with him‼️ ꒱
 
@@ -132,7 +132,7 @@
 · . ⊹ ₊ ─── ❄️ ─── ₊ ⊹ . ·
 
 <details>
-  <summary>$${\color{#FFFFFF}{\textsf{❄️ . kin list ! }}}$$</summary>
+  <summary>$${\color{#FFFFFF}{\textsf{kin list ! ❄️ : . }}}$$</summary>
 
   - England *(Hetalia)*
   - Canada *(Hetalia)*
@@ -155,3 +155,38 @@
   - Chance *(Forsaken)*
   - Two Time *(Forsake)*
   - Artful *(Die of death)*
+</detalis>
+
+❄️. 
+
+<details>
+  <summary>$${\color{#FFFFFF}{\textsf{ My ships list ❄️ : . }}}$$</summary>
+
+  - All England Ships *(except usuk, engcan and all minor characters)*
+  - Gerita/Itapan
+  - Ruscan/Canmano/Canpan
+  - KnightCandy *(Soulv x Yatta)*
+  - All Sprout Ships *(except minor characters)*
+  - BasketCookie *(Bassie x Ginger)*
+  - FlowerTissue *(Dandy x Tisha)*
+  - All Chance Ships *(except minor characters)*
+  - Doublefedora/Ichance
+  - Azuretime
+  - ShedBuilder
+  - John1x
+  - FrozenTV *(Itrap x Veero)*
+  - Some rarepair ships
+</details>
+
+❄️. 
+
+<details>
+  <summary>$${\color{#FFFFFF}{\textsf{ My dislikes ships list ❄️ : . }}}$$</summary>
+
+  - Cucan *(sorry☹️☹️)*
+  - All America ships
+  - All minor ships
+  - Soulbasket *(DNI)*
+  - ***Some*** Yuri ships
+  - JohnJane *(DNI)*
+</details>
