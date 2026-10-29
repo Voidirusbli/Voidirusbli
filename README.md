@@ -140,6 +140,7 @@
   - Canada *(Hetalia)*
   - Shelly *(Dandy’s world)*
   - Two Time *(Forsaken)*
+
 </detalis>
 
 ❄️. 
@@ -157,6 +158,7 @@
   - Chance *(Forsaken)*
   - Two Time *(Forsake)*
   - Artful *(Die of death)*
+
 </detalis>
 
 ❄️. 
@@ -178,6 +180,7 @@
   - John1x
   - FrozenTV *(Itrap x Veero)*
   - Some rarepair ships
+
 </details>
 
 ❄️. 
@@ -191,4 +194,5 @@
   - Soulbasket *(DNI)*
   - ***Some*** Yuri ships
   - JohnJane *(DNI)*
+
 </details>
