@@ -120,7 +120,7 @@
   “ ꒰ Main Ponies ↓ ꒱
 <br>
 
- <img src="https://cdn.phototourl.com/member/2026-10-27-97577453-ebba-4360-9c6b-4fd70dbad54b.jpg" width="250" alt="Main Pony 1"><img src="https://cdn.phototourl.com/member/2026-10-27-fc9db7ab-cfaf-46cb-9468-8d68a743d509.jpg" width="250" alt="Main Pony 2">
+ <img src="https://cdn.phototourl.com/member/2026-10-29-5de518aa-296e-4fb7-ad8c-d71f01ae09db.jpg" width="250" alt="Main Pony 1"><img src="https://cdn.phototourl.com/member/2026-10-29-47c0dabd-225b-4214-8ac5-f87217f99920.jpg" width="250" alt="Main Pony 2">
 
   “ ꒰ I always in FSK/DW area, You can find me in that area. If you don't find me, I might be offline or in another area. For example, in AHA  area, Countryballs area or Hetalia area!😁😁 ꒱
 
