@@ -143,6 +143,7 @@
   - Two Time *(Forsaken)*
 </detalis>
 
+
 ❄️.
 <details>
   <summary>$${\color{#FFFFFF}{\textsf{Favorites character list ❄️ : . }}}$$</summary>
@@ -158,6 +159,7 @@
   - Two Time *(Forsake)*
   - Artful *(Die of death)*
 </detalis>
+
 
 ❄️.
 <details>
@@ -178,6 +180,7 @@
   - FrozenTV *(Itrap x Veero)*
   - Some rarepair ships
 </details>
+
 
 ❄️.
 <details>
