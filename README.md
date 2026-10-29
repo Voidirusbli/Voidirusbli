@@ -139,9 +139,7 @@
   - England *(Hetalia)*
   - Canada *(Hetalia)*
   - Shelly *(Dandy’s world)*
-  - Two Time *(Forsaken)*
-
-</detalis>
+  - Two Time *(Forsaken)* </detalis>
 
 ❄️. 
 
@@ -157,9 +155,7 @@
   - Elliot *(Forsaken)*
   - Chance *(Forsaken)*
   - Two Time *(Forsake)*
-  - Artful *(Die of death)*
-
-</detalis>
+  - Artful *(Die of death)* </detalis>
 
 ❄️. 
 
@@ -179,9 +175,7 @@
   - ShedBuilder
   - John1x
   - FrozenTV *(Itrap x Veero)*
-  - Some rarepair ships
-
-</details>
+  - Some rarepair ships </details>
 
 ❄️. 
 
@@ -193,6 +187,4 @@
   - All minor ships
   - Soulbasket *(DNI)*
   - ***Some*** Yuri ships
-  - JohnJane *(DNI)*
-
-</details>
+  - JohnJane *(DNI)*</details>
