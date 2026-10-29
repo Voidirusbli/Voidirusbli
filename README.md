@@ -139,10 +139,10 @@
   - England *(Hetalia)*
   - Canada *(Hetalia)*
   - Shelly *(Dandy’s world)*
-  - Two Time *(Forsaken)* </detalis>
+  - Two Time *(Forsaken)*
+</detalis>
 
-❄️. 
-
+❄️.
 <details>
   <summary>$${\color{#FFFFFF}{\textsf{Favorites character list ❄️ : . }}}$$</summary>
 
@@ -155,10 +155,10 @@
   - Elliot *(Forsaken)*
   - Chance *(Forsaken)*
   - Two Time *(Forsake)*
-  - Artful *(Die of death)* </detalis>
+  - Artful *(Die of death)*
+</detalis>
 
-❄️. 
-
+❄️.
 <details>
   <summary>$${\color{#FFFFFF}{\textsf{ My ships list ❄️ : . }}}$$</summary>
 
@@ -175,10 +175,10 @@
   - ShedBuilder
   - John1x
   - FrozenTV *(Itrap x Veero)*
-  - Some rarepair ships </details>
+  - Some rarepair ships
+</details>
 
-❄️. 
-
+❄️.
 <details>
   <summary>$${\color{#FFFFFF}{\textsf{ My dislikes ships list ❄️ : . }}}$$</summary>
 
@@ -187,4 +187,5 @@
   - All minor ships
   - Soulbasket *(DNI)*
   - ***Some*** Yuri ships
-  - JohnJane *(DNI)*</details>
+  - JohnJane *(DNI)*
+</details>
