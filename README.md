@@ -114,6 +114,7 @@
 </details>
 
 ❄️.
+
 <details>
   <summary>$${\color{#FFFFFF}{\textsf{About Me, in Pony Town!❄️ : .}}}$$</summary>
 
@@ -134,6 +135,7 @@
 
 <details>
   <summary>$${\color{#FFFFFF}{\textsf{kin list ! ❄️ : . }}}$$</summary>
+
   - England *(Hetalia)*
   - Canada *(Hetalia)*
   - Shelly *(Dandy’s world)*
@@ -141,8 +143,10 @@
 </detalis>
 
 ❄️. 
+
 <details>
   <summary>$${\color{#FFFFFF}{\textsf{Favorites character list ❄️ : . }}}$$</summary>
+
   - England *(Hetalia)*
   - Italy *(Hetalia)*
   - Canada *(Hetalia)*
@@ -156,8 +160,10 @@
 </detalis>
 
 ❄️. 
+
 <details>
   <summary>$${\color{#FFFFFF}{\textsf{ My ships list ❄️ : . }}}$$</summary>
+
   - All England Ships *(except usuk, engcan and all minor characters)*
   - Gerita/Itapan
   - Ruscan/Canmano/Canpan
@@ -175,8 +181,10 @@
 </details>
 
 ❄️. 
+
 <details>
   <summary>$${\color{#FFFFFF}{\textsf{ My dislikes ships list ❄️ : . }}}$$</summary>
+
   - Cucan *(sorry☹️☹️)*
   - All America ships
   - All minor ships
