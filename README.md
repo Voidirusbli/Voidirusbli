@@ -1,4 +1,4 @@
-## " νσıdıяυsвlı (About US) ! "
+## " νσıdıяυsвlı "
 
 · . ⊹ ₊ ─── ❄️ ─── ₊ ⊹ . ·
 
@@ -12,7 +12,7 @@
 
 ❄️.
 <details>
-  <summary>$${\color{#FFFFFF}{\textsf{❄️ My Hetalia ocs 🥺}}}$$</summary>
+  <summary>$${\color{#FFFFFF}{\textsf{❄️ . My Hetalia ocs 🥺}}}$$</summary>
   
   <br>
 
@@ -23,7 +23,7 @@
 </details>
 
 <details>
-  <summary>$${\color{#FFFFFF}{\textsf{❄️ About My Hetalia ocs 😇}}}$$</summary>
+  <summary>$${\color{#FFFFFF}{\textsf{❄️ . About My Hetalia ocs 😇}}}$$</summary>
 
   “ ꒰ **Finnish Lapland** → ꒱ ❄️ : . “ ꒰ Cheerful, whiny. *(Boku)*. He is 17 years old and 166 cm tall. He and Finland are sworn brothers *(I'm afraid some people might misunderstand and think they are real siblings, Actually, they aren't.)* Is it strange that he's afraid of Sweden???🤔🤔 Never mind, and anyway😁😁 He knows Sealand too!! so... That's it! He has an exceptionally good relationship with Swedish Lapland *(his older brother)*, even though he feels his brother doesn't seem to care about him😢😢 ꒱
 
@@ -31,7 +31,7 @@
 </details>
 
 <details>
-  <summary>$${\color{#FFFFFF}{\textsf{❄️ About the yumeship??? I guess😂😂 }}}$$</summary>
+  <summary>$${\color{#FFFFFF}{\textsf{❄️ . About the yumeship??? I guess😂😂 }}}$$</summary>
 
   “ ꒰ I'm **England yumeshippers**! Some people know, some don't😑 and I don't ship my minor oc with him‼️ ꒱
 
@@ -105,7 +105,7 @@
 · . ⊹ ₊ ─── ❄️ ─── ₊ ⊹ . ·
 
 <details>
-  <summary>$${\color{#FFFFFF}{\textsf{❄️ BY Pony Town 🥺}}}$$</summary>
+  <summary>$${\color{#FFFFFF}{\textsf{❄️ . BY Pony Town 🥺}}}$$</summary>
   <br>
 
  <img src="https://cdn.phototourl.com/member/2026-10-27-ff39141e-746f-4e8a-8990-b5358407681c.jpg" width="250" alt="Coolest Pony">
@@ -127,3 +127,31 @@
   “ ꒰ you can c+h me for free! if I'm alone☹️☹️ my discord friends didn't online sometimes, but— Anyway!😀 You can send me a friend request or anything, but I'm not good at English, so I might reply slowly because I spend time translating the words to understand them☹️☹️ I don't like roleplaying, but if you ask, I can. I'll try my best to roleplay🙂🙂‼️‼️ ꒱
 
   “ ꒰ Darkshippers Dni, Racists Dni, Haters Dni, Dnc, Dncover, Dniuf *(For some people I don't know, except if they send me a friend request Or I knew them without them asking to be my friend)*, w2i, c+h, mostly AFK, Slowly Reply, Sign Ata. ꒱
+
+## “ lists “
+· . ⊹ ₊ ─── ❄️ ─── ₊ ⊹ . ·
+
+<details>
+  <summary>$${\color{#FFFFFF}{\textsf{❄️ . kin list ! }}}$$</summary>
+
+  - England *(Hetalia)*
+  - Canada *(Hetalia)*
+  - Shelly *(Dandy’s world)*
+  - Two Time *(Forsaken)*
+</detalis>
+
+❄️. 
+
+<details>
+  <summary>$${\color{#FFFFFF}{\textsf{Favorites character list ❄️ : . }}}$$</summary>
+
+  - England *(Hetalia)*
+  - Italy *(Hetalia)*
+  - Canada *(Hetalia)*
+  - Shelly *(Dandy’s world)*
+  - Soulvester *(Dandy’s world)*
+  - Kenny *(South Park)*
+  - Elliot *(Forsaken)*
+  - Chance *(Forsaken)*
+  - Two Time *(Forsake)*
+  - Artful *(Die of death)*
