@@ -127,6 +127,7 @@
   “ ꒰ you can c+h me for free! if I'm alone☹️☹️ my discord friends didn't online sometimes, but— Anyway!😀 You can send me a friend request or anything, but I'm not good at English, so I might reply slowly because I spend time translating the words to understand them☹️☹️ I don't like roleplaying, but if you ask, I can. I'll try my best to roleplay🙂🙂‼️‼️ ꒱
 
   “ ꒰ Darkshippers Dni, Racists Dni, Haters Dni, Dnc, Dncover, Dniuf *(For some people I don't know, except if they send me a friend request Or I knew them without them asking to be my friend)*, w2i, c+h, mostly AFK, Slowly Reply, Sign Ata. ꒱
+</details>
 
 ## “ lists “
 · . ⊹ ₊ ─── ❄️ ─── ₊ ⊹ . ·
