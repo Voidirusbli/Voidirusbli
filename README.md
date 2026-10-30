@@ -157,6 +157,7 @@
   - Chance *(Forsaken)*
   - Two Time *(Forsaken)*
   - Artful *(Die of death)*
+  - Secretary 1 /old model/ *(Animal Hospital)*
 </detalis>
 
 ❄️.
@@ -178,6 +179,8 @@
   - John1x
   - FrozenTV *(Itrap x Veero)*
   - Some rarepair ships
+  - Agentary *(Secret Agent x Secretary 1)*
+  - Securse *(Secretary 1 x Nurse)*
 </details>
 
 ❄️.
@@ -194,4 +197,5 @@
   - AdminVirus *(DNI)*
   - JohnBuilder/BuilderJane *(DNI)*
   - GuestNoob *(DNI)*
+  - SecretIntern *(DNI)*
 </details>
