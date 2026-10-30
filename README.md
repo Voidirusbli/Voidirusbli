@@ -155,7 +155,7 @@
   - Kenny *(South Park)*
   - Elliot *(Forsaken)*
   - Chance *(Forsaken)*
-  - Two Time *(Forsake)*
+  - Two Time *(Forsaken)*
   - Artful *(Die of death)*
 </detalis>
 
@@ -166,6 +166,7 @@
   - All England Ships *(except usuk, engcan and all minor characters)*
   - Gerita/Itapan
   - Ruscan/Canmano/Canpan
+  - Prumano
   - KnightCandy *(Soulv x Yatta)*
   - All Sprout Ships *(except minor characters)*
   - BasketCookie *(Bassie x Ginger)*
@@ -190,4 +191,7 @@
   - ***Some*** Yuri ships
   - JohnJane *(DNI)*
   - DoubleZipper *(DNI)*
+  - AdminVirus *(DNI)*
+  - JohnBuilder/BuilderJane *(DNI)*
+  - GuestNoob *(DNI)*
 </details>
