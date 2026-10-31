@@ -126,6 +126,7 @@
   - Gerita/Itapan
   - Ruscan/Canmano/Canpan
   - Prumano
+  - Giripan
   - KnightCandy *(Soulv x Yatta)* + *(‼️MAYBE RAREPAIR‼️)*
   - All Sprout Ships *(except minor characters)*
   - BasketCookie
