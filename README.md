@@ -19,7 +19,7 @@
   “ ꒰ **Swedish Lapland**🇸🇪 & 🇫🇮 **Finnish Lapland** ꒱
  <img src="https://cdn.phototourl.com/member/2026-10-27-5385d59c-4839-43db-a322-053175bdd51e.png" width="250" alt="Swedish Lapland"><img src="https://cdn.phototourl.com/member/2026-10-27-25f5ef6d-b5ff-40d1-b91f-d392ebee8dc5.png" width="250" alt="Finnish Lapland">
 
-  “ ꒰ My sons, trust trust🥰 Ahem, They're siblings!😁😁 ꒱
+  “ ꒰ My sons, trust trust🥰 and They're siblings!😁😁 ꒱
 </details>
 
 <details>
@@ -48,58 +48,16 @@
   “ ꒰ He's also in the South Park fandom, but I don't plan on joining that fandom, even though I've seen it around. I like Kenny though😁 I liked him just by seeing him🙂 I don't know his personality😑😑 ꒱
 </details>
 
-## " Our social media!! 😘 "
+## " my social media!! 😘 "
 
 · . ⊹ ₊ ─── ❄️ ─── ₊ ⊹ . ·
 
 <details>
-  <summary>$${\color{#FFFFFF}{\textsf{❄️ ─── OUR discord🥺 ─── ❄️}}}$$</summary>
+  <summary>$${\color{#FFFFFF}{\textsf{❄️ ─── my social media here🥺 ─── ❄️}}}$$</summary>
 
-  “ ꒰ "https://discordid.netlify.app/?id=1503729158365380714" — Me
-"https://discordid.netlify.app/?id=1284063250018992161" — Mon *(My younger cousins)*
-"https://discordid.netlify.app/?id=1320713371393327138" — Nam
-"https://discordid.netlify.app/?id=1048899213632733204" — Bank/Choso
-"https://discordid.netlify.app/?id=1417098371617001474" — Jam/aiko
-"https://discordid.netlify.app/?id=1310275684194582662" — Tod *(My Older cousins)*
-"https://discordid.netlify.app/?id=1323348326971867146" — Ice *(Mon’s friend. he’s 3 years older than Mon, lol)*
-"https://discordid.netlify.app/?id=1496839182750978150" — Ice *(alt)* ꒱
-
-  “ ꒰ *(Bank, Tod, Jam and Ice are Friends! They’re in the same grade* ꒱
-</details>
-
-❄️.
-
-<details>
-  <summary>$${\color{#FFFFFF}{\textsf{❄️ ─── Our Roblox User ─── ❄️}}}$$</summary>
-
-  “ ꒰ "https://www.roblox.com/users/2753938924/profile" — Me
-"https://www.roblox.com/users/10122924421/profile" — Nam
-"https://www.roblox.com/users/6037404692/profile" — Mon
-"https://www.roblox.com/users/3677511394/profile" — Bank/Choso
-"https://www.roblox.com//users/2517303687/profile" — Tod
-"https://www.roblox.com//users/4884429058/profile" — Ice ꒱
-</details>    
-
-❄️.
-
-<details>
-  <summary>$${\color{#FFFFFF}{\textsf{❄️ ─── Our Instagram ─── ❄️}}}$$</summary>
-
-  “ ꒰ "https://www.instagram.com/sayhimklxmkeliyng" — Me
-"https://www.instagram.com/b4nxk_?obrf=MTNydGZxN3J6cTZ4bw==" — Bank/Choso
-"https://www.instagram.com/aikozz_nyx" — Jam/aiko ꒱
-</details>    
-
-❄️.
-
-<details>
-  <summary>$${\color{#FFFFFF}{\textsf{❄️ ─── Our TikTok ─── ❄️}}}$$</summary>
-
-  “ ꒰ "https://www.tiktok.com/@voidirusbli?_r=1&_t=ZS-9AtgcTO9UMm” — Me
-“https://www.tiktok.com/@rayong_ball?_r=1&_t=ZS-9AtgeOywTFF” — Nam
-“https://www.tiktok.com/@fpupy_777?_r=1&_t=ZS-9Atgg3O9hP3” — Bank/Choso
-“https://www.tiktok.com/@__aikozz__nyx.__?_r=1&_t=ZS-9AtgkGR7rgS” — Jam/aiko ꒱
-</details>    
+"https://discordid.netlify.app/?id=1503729158365380714"
+"https://www.instagram.com/sayhimklxmkeliyng"
+"https://www.tiktok.com/@voidirusbli?_r=1&_t=ZS-9AtgcTO9UMm”
 
 ## " Pony Town🤔🤔 "
 · . ⊹ ₊ ─── ❄️ ─── ₊ ⊹ . ·
@@ -117,11 +75,6 @@
 
 <details>
   <summary>$${\color{#FFFFFF}{\textsf{About Me, in Pony Town!❄️ : .}}}$$</summary>
-
-  “ ꒰ Main Ponies ↓ ꒱
-<br>
-
- <img src="https://cdn.phototourl.com/member/2026-10-29-5de518aa-296e-4fb7-ad8c-d71f01ae09db.jpg" width="250" alt="Main Pony 1"><img src="https://cdn.phototourl.com/member/2026-10-29-47c0dabd-225b-4214-8ac5-f87217f99920.jpg" width="250" alt="Main Pony 2">
 
   “ ꒰ I always in FSK/DW area, You can find me in that area. If you don't find me, I might be offline or in another area. For example, in AHA  area, Countryballs area or Hetalia area!😁😁 ꒱
 
@@ -141,6 +94,7 @@
   - Canada *(Hetalia)*
   - Shelly *(Dandy’s world)*
   - Two Time *(Forsaken)*
+  - Leafy *(BFDI)*
 </detalis>
 
 ❄️.
@@ -158,6 +112,9 @@
   - Two Time *(Forsaken)*
   - Artful *(Die of death)*
   - Secretary 1 /old model/ *(Animal Hospital)*
+  - Leafy *(BFDI)*
+  - Book *(BFDI)*
+  - Fanny *(BFDI)*
 </detalis>
 
 ❄️.
@@ -168,19 +125,27 @@
   - Gerita/Itapan
   - Ruscan/Canmano/Canpan
   - Prumano
-  - KnightCandy *(Soulv x Yatta)*
+  - KnightCandy *(Soulv x Yatta)* + *(‼️MAYBE RAREPAIR‼️)*
   - All Sprout Ships *(except minor characters)*
-  - BasketCookie *(Bassie x Ginger)*
-  - FlowerTissue *(Dandy x Tisha)*
+  - BasketCookie
+  - FlowerTissue *(Dandy x Tisha)* + *(‼️RAREPAIR‼️)*
   - All Chance Ships *(except minor characters)*
   - Doublefedora/Ichance
   - Azuretime
   - ShedBuilder
   - John1x
-  - FrozenTV *(Itrap x Veero)*
+  - FrozenTV *(Itrap x Veero)* + *(‼️RAREPAIR‼️)*
   - Some rarepair ships
   - Agentary *(Secret Agent x Secretary 1)*
   - Securse *(Secretary 1 x Nurse)*
+  - Fireafy
+  - Markerbook *(‼️RAREPAIR‼️)*
+  - Bookleaf
+  - FanTree
+  - BlackMoon/holeinone *(Black hole x One)* + *(‼️MAYBE RAREPAIR‼️)*
+  - Fourx
+  - Twone
+  - 015 *(zero x fifteen)*
 </details>
 
 ❄️.
@@ -198,4 +163,7 @@
   - JohnBuilder/BuilderJane *(DNI)*
   - GuestNoob *(DNI)*
   - SecretIntern *(DNI)*
+  - onethree *(DNI)*
+  - Twogaty *(DNI)*
+  - Fourone *(DNI)*
 </details>
