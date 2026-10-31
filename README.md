@@ -58,6 +58,7 @@
 "https://discordid.netlify.app/?id=1503729158365380714"
 "https://www.instagram.com/sayhimklxmkeliyng"
 "https://www.tiktok.com/@voidirusbli?_r=1&_t=ZS-9AtgcTO9UMm”
+</details>
 
 ## " Pony Town🤔🤔 "
 · . ⊹ ₊ ─── ❄️ ─── ₊ ⊹ . ·
