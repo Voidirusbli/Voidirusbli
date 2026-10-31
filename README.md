@@ -127,6 +127,7 @@
   - Ruscan/Canmano/Canpan
   - Prumano
   - Giripan
+  - Lietbel
   - Aussiwss
   - Aushun
   - hunukr
@@ -171,4 +172,5 @@
   - onethree *(DNI)*
   - Twogaty *(DNI)*
   - Fourone *(DNI)*
+  - Rusbel *(DNI)*
 </details>
