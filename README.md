@@ -127,6 +127,9 @@
   - Ruscan/Canmano/Canpan
   - Prumano
   - Giripan
+  - Aussiwss
+  - Aushun
+  - hunukr
   - KnightCandy *(Soulv x Yatta)* + *(‼️MAYBE RAREPAIR‼️)*
   - All Sprout Ships *(except minor characters)*
   - BasketCookie
