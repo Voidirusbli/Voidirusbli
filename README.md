@@ -48,18 +48,6 @@
   “ ꒰ He's also in the South Park fandom, but I don't plan on joining that fandom, even though I've seen it around. I like Kenny though😁 I liked him just by seeing him🙂 I don't know his personality😑😑 ꒱
 </details>
 
-## " my social media!! 😘 "
-
-· . ⊹ ₊ ─── ❄️ ─── ₊ ⊹ . ·
-
-<details>
-  <summary>$${\color{#FFFFFF}{\textsf{❄️ ─── my social media here🥺 ─── ❄️}}}$$</summary>
-
-"https://discordid.netlify.app/?id=1503729158365380714"
-"https://www.instagram.com/sayhimklxmkeliyng"
-"https://www.tiktok.com/@voidirusbli?_r=1&_t=ZS-9AtgcTO9UMm”
-</details>
-
 ## " Pony Town🤔🤔 "
 · . ⊹ ₊ ─── ❄️ ─── ₊ ⊹ . ·
 
@@ -96,6 +84,7 @@
   - Shelly *(Dandy’s world)*
   - Two Time *(Forsaken)*
   - Leafy *(BFDI)*
+
 </detalis>
 
 ❄️.
@@ -116,6 +105,7 @@
   - Leafy *(BFDI)*
   - Book *(BFDI)*
   - Fanny *(BFDI)*
+
 </detalis>
 
 ❄️.
