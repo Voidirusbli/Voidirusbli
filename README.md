@@ -6,8 +6,6 @@
   <summary>$${\color{#FFFFFF}{\textsf{About me !                 ❄️ : .}}}$$</summary>
   
   “ ꒰ I'm Aroace and transgender boy🏳️‍⚧️! so am I STILL a girl?🤔 btw You can use the pronouns "she/he" to me! I don't mind! I'm 13 y/o! my bday is June 14‼️😁 and I'm a shy person and not good at socializing😢😢 My name is SaiMai! Or, for short, Mai! Or you can call me Void or Wadi😇😇 ꒱
-
-  “ ꒰ My best friend in real life is named Nam. Even though he's one year younger than me, we're still in the same grade😁😂 I have a cousin, but I call him as my younger brother. His name is Mon. He's 11 years old, but he still watches Skibidi Toilet😭 but I love him as my ANNOYING and funny brother😘😘 ꒱
 </details>
 
 ❄️.
@@ -36,16 +34,6 @@
   “ ꒰ I'm **England yumeshippers**! Some people know, some don't😑 and I don't ship my minor oc with him‼️ ꒱
 
   “ ꒰ **My OC ship(s?)** → ꒱ ❄️ : .  “ ꒰ **Iceedish**, yup😂😂 Swedish Lapland x Iceland 😂😂 I know Iceland is 16-17 years old, but it's not exactly darkship😑 You can ask Google, I've already asked. At first, I was scared, wondering if it might be darkship😰😰, but once I knew, I wasn't wonder anymore😀 ꒱
-</details>
-
-❄️.
-
-<details>
-  <summary>$${\color{#FFFFFF}{\textsf{About my bsf !                 ❄️ : .}}}$$</summary>
-
-  “ ꒰ He's Aroace, He's 12 y/o! his bday is April 19‼️😁 He's pretty funny, He's also good at English🥰🥰 his name is Nam. Yayaya! He made me like Hetalia and I often join the fandom😇 ꒱
-
-  “ ꒰ He's also in the South Park fandom, but I don't plan on joining that fandom, even though I've seen it around. I like Kenny though😁 I liked him just by seeing him🙂 I don't know his personality😑😑 ꒱
 </details>
 
 ## " Pony Town🤔🤔 "
