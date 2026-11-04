@@ -2,4 +2,4 @@
 ##
 Doubles yume are okay❗️ I don’t mind‼️ read my prns and sign my ata‼️ *(if you want to sign, no forced‼️‼️)*
 ##
-C+H, W2I, W2Ship❗️ you can whisper me to be my friends‼️‼️
+C+H, W2I, W2Ship, Dnc, Dncover❗️ you can whisper me to be my friends‼️‼️
