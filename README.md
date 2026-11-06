@@ -3,5 +3,5 @@
 ##
 Doubles yume are okay! I don’t mind!! read my prns and sign my ata!! *(if you want to sign, no forced!!!!)*
 ##
-C+H, W2I, W2Ship, Dnc, Dncover, iwec/iwc! Mostly Afk, Slow reply! *you can whisper me to be my friends!!*
-Darkshippers or proshippers dni! Soulbasket shippers dni! *sorry, but I don’t like this ship*,,
+C+H, W2I, W2Ship, Dnc, Dncover, iwec/iwc! Mostly Afk, Slow reply! and YOU can ship my oc with other characters, so thats ur ships not mine! also i dont mind!
+Darkshippers or proshippers dni!
