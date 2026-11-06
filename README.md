@@ -8,5 +8,5 @@ Darkshippers or proshippers dni!
 ##
 - *”Your yumeship aren’t canon!”* yes, because ITS oc x canon, so not canon😂
 - *”(charater 1) doesn't love you! (character 1) loves (character 2)!”* dni me if some of you don’t like my yumeship.
-- *”isnt (character 1) loves (character 2)?😢”* GOSH, it’s just a ships. not that serious. Lets people have fun with their f/o!
-+ YOU can ship my OCs with other characters, so thats ur ships not mine! also i dont mind! *MINOR CHARACTERS ARE NOT ALLOWED TO SHIP WITH MY OCs!*
+- *”isnt (character 1) loves (character 2)?”* GOSH, it’s just a ships. not that serious. Lets people have fun with their f/o!
+- YOU can ship my OCs with other characters, so thats ur ships not mine! also i dont mind! *MINOR CHARACTERS ARE NOT ALLOWED TO SHIP WITH MY OCs! EXCEPT IF MY OCs IS MINOR TOO!*
